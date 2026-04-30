@@ -1,4 +1,4 @@
-
+genshin scripts smart Scripts: auto-mora farm & artifact auto-farm offers the most advanced genshin scripts scripts, with auto-mora farm and artifact auto-farm. Ideal for
 
 
 
